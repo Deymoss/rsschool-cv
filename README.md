@@ -1,1 +1,1 @@
-https://rs.school/
+https://Deymoss.github.io/rsschool-cv/cv
